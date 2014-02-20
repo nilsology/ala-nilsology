@@ -2,7 +2,7 @@
 ---
 
 ##Vorwort
-Dieses *kleine* Rezeptsammlung soll hauptsächlich für mich als Rezeptreferenz dienen sollte ich mal nicht weiter wissen oder einfach mal ein altes Gericht erneut kochen wollen; auch aber um den Überblick behalten zu können.  
+Diese *kleine* Rezeptsammlung soll hauptsächlich für mich als Rezeptreferenz dienen sollte ich mal nicht weiter wissen oder einfach mal ein altes Gericht erneut kochen wollen; auch aber um den Überblick behalten zu können.  
 
 Momentan ist noch keine wirkliche Gliederung zu erkennen und vorerst auch nicht geplant, da die Anzahl der Gerichte noch sehr gering ist.  
 
