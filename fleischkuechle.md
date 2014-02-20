@@ -10,7 +10,8 @@
 * ~ 2 EL Gewürzmischung *à la nilsology*
  * Pfeffer
  * Salz
- * Oregano
+ * Oregano / Majoran
+ * Paprika
  * Zimt
  * Muskat
  * Chili-Gewürz
